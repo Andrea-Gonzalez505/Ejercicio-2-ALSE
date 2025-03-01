@@ -1,1 +1,1 @@
-# Ejercicio-2-ALSE
+# Juan Manuel Gómez Solano y Jeimmy Andrea Gonzalez Gordillo
